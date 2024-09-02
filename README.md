@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working all sort of projects toyself familiarized with different sort of technologies
+I am currently working all sort of projects to make myself familiarized with different sort of technologies
 
 
 ## 🌐 Socials:
